@@ -4,7 +4,7 @@
 
 ## Summary
 
-The following instructions are to explain the process of catching, saddling, and riding a horse. The instructions will also cover how to behave around a horse as well as control it. 
+The following instructions are to explain the process of catching, saddling, and riding a horse for someone who has never ridden a horse or little experience with riding horses. The instructions will also cover how to behave around a horse as well as control it. 
 
 ## Introduction
 
