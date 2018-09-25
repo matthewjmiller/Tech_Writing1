@@ -1,5 +1,5 @@
 ****
-I am not completely done with the document. Some things need to be fleshed out still.
+I am not completely done with the document. Some things need to be fleshed out still. Do you think could follow the instructions well enough to actually perform the process.
 
 ****
 
