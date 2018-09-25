@@ -1,3 +1,8 @@
+****
+I am not completely done with the document. Some things need to be fleshed out still.
+
+****
+
 # **Instructions to Riding a Horse**
 
 ### Justin Campbell
@@ -9,7 +14,7 @@ The following instructions are to explain the process of catching, saddling, and
 ## Introduction
 
 Riding a horse is a process that is more than jumping on a horse and galloping away. Horse riding involves several different aspects that include catching the horse, cleaning the horse, saddling the horse, bridling the horse, and then finally getting on the horse and riding it. Properly following the sequence of events will keep the person riding the horse safe as well as keep the horse safe. Horses can be skittish, so it is always important that safety be kept in mind while handling a horse. 
-### Tools Needed (jargon)
+### Tools Needed (jargon) (Will flesh out and explain the jargon)
 Bridle, Saddle (breast collar, front cinch, flank cinch, connection straps), CurryComb, brush, halter, lead rope, reins, a friend to help, saddle blanket, parts of a saddle, parts of a bridle.
 
 ## Step by Step Instructions
