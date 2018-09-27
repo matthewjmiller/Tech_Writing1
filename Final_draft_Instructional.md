@@ -6,13 +6,9 @@ Technical Writing
 Instructional Document
 ****
 
-## Summary
-
-The following instructions are to explain the process of catching, saddling, and riding a horse for someone who has never ridden a horse or little experience with riding horses. The instructions will also cover how to behave around a horse as well as control it. 
-
 ## Introduction
 
-Despite what Hollywood portrays, jumping on a horse and chasing indians as you fire  a gun over the horses head is not how riding horses works. Riding a horse is a process that is more than jumping on a horse and galloping away. Horse riding involves several different aspects that include catching the horse, cleaning the horse, saddling the horse, bridling the horse, and then finally getting on the horse and riding it. Properly following the sequence of events will keep the person riding the horse safe as well as keep the horse safe. Horses can be skittish, so it is always important that safety be kept in mind while handling a horse. You should always let the horse know you are close to it by talking to it. Do not walk right behind a horse, they kick very well and a solid kick could kill you. Be calm around the horse and the horse will stay calm.
+Despite what Hollywood portrays, jumping on a horse and chasing indians as you fire a gun over the horses head is not how riding horses works. Riding a horse is a process that is more than jumping on a horse and galloping away. Horse riding involves several different aspects that include catching the horse, cleaning the horse, saddling the horse, bridling the horse, and then finally getting on the horse and riding it. Properly following the sequence of events will keep the person riding the horse safe as well as keep the horse safe. Horses can be skittish, so it is always important that safety be kept in mind while handling a horse. You should always let the horse know you are close to it by talking to it. Do not walk right behind a horse, they kick very well and a solid kick could kill you. Be calm around the horse and the horse will stay calm.
 
 *This instructional is designed for people who are new to riding horses.* This will be a step by step instruction. It is important to follow these steps to avoid injury to either you or the horse.
 ### Tools Needed
