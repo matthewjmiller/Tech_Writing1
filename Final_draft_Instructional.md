@@ -10,9 +10,9 @@ Instructional Document
 
 Despite what Hollywood portrays, jumping on a horse and chasing indians as you fire a gun over the horses head is not how riding horses works. Riding a horse is a process that is more than jumping on a horse and galloping away. Horse riding involves several different aspects that include catching the horse, cleaning the horse, saddling the horse, bridling the horse, and then finally getting on the horse and riding it. Properly following the sequence of events will keep the person riding the horse safe as well as keep the horse safe. Horses can be skittish, so it is always important that safety be kept in mind while handling a horse. You should always let the horse know you are close to it by talking to it. Do not walk right behind a horse, they kick very well and a solid kick could kill you. Be calm around the horse and the horse will stay calm.
 
-*This instructional is designed for people who are new to riding horses.* This will be a step by step instruction. It is important to follow these steps to avoid injury to either you or the horse.
+*This instructional is designed for people who are new to riding horses.* This will be a step by step instruction. It is important to follow these steps to avoid injury to either you or the horse. You will have the best success riding a horse by following this step by step instruction.
 ### Tools Needed
-These are tools and supplies needed to get a horse ready to ride and to actually ride the horse.
+These are tools and supplies needed to get a horse ready to ride and to actually ride the horse. Some of this gear have many parts to them, but that gets advanced quickly so I will avoid mentioning them too much.
 - Currycomb
 - Brush
 - Halter
