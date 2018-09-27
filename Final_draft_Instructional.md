@@ -48,7 +48,7 @@ The reins should be held in your dominant hand. To steer the horse inthe directi
 - Q: How do I get off the horse?
 - A: *Reverse of how you got on. Swing your right leg over the horses back and ease yourself down while holding the saddle horn.*
 ## Pitfalls
-- Avoid getting on the horse in rough terrain, use a soft grassy area.
+- Avoid getting on the horse in rough terrain, use a soft grassy area. *Trust me I know from experience.*
 - Avoid holding onto the horn of the saddle with the reins in your hand, it prevents you from controlling the horse.
 - Double check your saddle before getting on as it can loosen after the horse has been saddled.
 - Let your horse drink water at opportunities like water crossings or water tanks.
