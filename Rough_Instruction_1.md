@@ -1,7 +1,7 @@
 # **Instructions to Riding a Horse**
 
 ****
-### Justin Campbell
+**Justin Campbell**
 Technical Writing
 Instructional Document
 ****
